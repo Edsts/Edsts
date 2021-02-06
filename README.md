@@ -1,4 +1,3 @@
-![computer-science-4715556_1280](https://user-images.githubusercontent.com/26067119/105576716-7d40ce80-5d53-11eb-82b0-c59b6ad921aa.jpg)
 
 ### Hi there 👋
     👨 My Name is Ednaldo. I Live in Duque de Caxias City, in Rio de Janeiro.
